@@ -1,0 +1,1 @@
+# Mohon maaf kak. kalo yang commit laprak week 3 itu aydinzafrul21, itu sebenarnya saya sendiri (Naufal Itmam L) yg commit kak cuma masih ke log in akun github nya si Aydin Zafrul dan lupa aku log out in kemarin dia minjem laptopku buat ngerjain laprak week 2. Terima kasih.
